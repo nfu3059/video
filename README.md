@@ -6,7 +6,7 @@
 
  提取码: ep1y 
 
-![1.JPG](https://gitee.com/NFUNM059/video-clip/raw/master/%E5%92%B8%E9%B1%BC.JPG)
+[图1](https://gitee.com/NFUNM059/video-clip/raw/master/%E5%92%B8%E9%B1%BC.JPG)
 ## 2.十元吃啥呢？（用十元制作食材，包括制作和品尝过程，前后有引入和引出）
 
 [链接]( https://pan.baidu.com/s/1OQFX5gpIlMzuR4NdoRO3wA)
